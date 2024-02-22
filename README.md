@@ -1,0 +1,6 @@
+- 👋 Hi, I'm Megan, Global Employer Branding specialist at Amex GBT.
+- 👀 We're always looking for new talent to join our team!
+- 🌱 Amex GBT is the world's leading travel booking platform for businesses. Our proprietary tech includes Amex GBT Egencia and Amex GBT Neo.
+- 📫 Message e for more details, or visit this site to view our jobs: https://travelhrportal.wd1.myworkdayjobs.com/Jobs/jobs
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: ...
